@@ -1,2 +1,2 @@
-# ur-mom
-gay
+# some lego haxor things
+hehehe
